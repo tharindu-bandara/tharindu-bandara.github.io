@@ -1,1 +1,1 @@
-## Tharindu Bandara's developer profile website
+## Tharindu Bandara's Developer Profile Website
